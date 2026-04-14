@@ -41,8 +41,6 @@ This lab strengthened my ability to:
 
 ---
 
-## 📸 Screenshots
-(Add your screenshots here)
 
 ---
 
